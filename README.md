@@ -44,4 +44,4 @@ Looking for **innovative projects** in:
 - Blockchain/gaming hybrids  
 - Performance-critical UIs  
 
-📫 Reach me: [LinkedIn](www.linkedin.com/in/aryanaghf) | [Portfolio](#)  
+📫 Reach me: [LinkedIn](https://www.linkedin.com/in/aryanaghf) | [Portfolio](#)  
